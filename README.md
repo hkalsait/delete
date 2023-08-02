@@ -1,3 +1,3 @@
 Time tracker
 
-Good Night Students!!!
+Good Night Friends!!!
